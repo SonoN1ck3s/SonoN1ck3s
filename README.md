@@ -1,5 +1,4 @@
-- 👋 Ayo, It's SonoN1ck3s!
-- 👀 Currently Busy On ShadowSquad
-- 🌱 Currently JavaScript Developer
-- ☕ Currently Learning Java
-- 📫 How to reach me: Discord: SonoN1ck3s#2163 Telegram: @sonon1ck3s
+- 👋 Ayo, It's ErNarcos here!
+- 👀 Currently Griefing With ShadowSquad
+- 🌱 JavaScript Developer
+- 📫 How to reach me: Discord: N1ckErNarcos#2163 Telegram: @sonon1ck3s
